@@ -1,1 +1,1 @@
-alx group project by stevemaine and Zheeko-1
+alx projct by stevemanie and Zheeko-1
